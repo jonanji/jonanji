@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jonanji
+- 👀 I’m interested in Economics and Sociology
+- 🌱 I’m currently learning hard stuff in Econometrics
+- 💞️ I’m looking to become a Labour Economics researcher, maybe even in academic
